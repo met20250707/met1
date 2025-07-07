@@ -20,4 +20,4 @@
 
 这些平台不仅提供免费的影片，还通过用户评论和评分系统让你能了解其他用户的观影感受，帮助你更好地选择影片。整体而言，这些网站通过清晰的界面、流畅的观看体验和丰富的资源，吸引了大量用户，是寻找免费日本AV影片的理想选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/met20250707/met1 ）</span>
